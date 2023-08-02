@@ -1,0 +1,1 @@
+![Alt text](Scaliir_Logo_transparent.png?raw=true "Scaliir Digital Logo")
